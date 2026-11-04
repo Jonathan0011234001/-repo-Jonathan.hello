@@ -1,1 +1,1 @@
-We need to recieve what occured
+We need to recieve what occurred
